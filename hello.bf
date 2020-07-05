@@ -1,2 +1,2 @@
-Code came from English Wikipedia
+Code come from English Wikipedia
 ++++++++[>++++[>++>+++>+++>+<<<<-]>+>+>->>+[<]<-]>>.>---.+++++++..+++.>>.<-.<.+++.------.--------.>>+.>++.
